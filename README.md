@@ -1,0 +1,2 @@
+# piatek
+ nie wiem
